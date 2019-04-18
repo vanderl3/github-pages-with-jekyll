@@ -1,0 +1,1 @@
+Recently in Corporate America, a company decided to make cuts in their workforce.  They thought it would be nice if they allowed the employees to basically fire themselves by "opting out" of future state roles.  Could this be a new way of doing workforce reduction?
